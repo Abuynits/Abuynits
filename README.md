@@ -12,7 +12,7 @@ In my free time, I love hiking / mountain biking, and finding excuses to visit c
 
 #### Random facts:
 - **Favorite Quote:** "If you are not in pain, you are not learning." - Employee at SpaceX
-- - **Second Favorite Quote:** "Oooooh yea I dont like this problem. It came off a graduate qualifying exam. I put it on there just to torment people, even I don't know how to do it" - MA 453 Prof
+- **Second Favorite Quote:** "Oooooh yea I dont like this problem. It came off a graduate qualifying exam. I put it on there just to torment people, even I don't know how to do it" - MA 453 Prof
 - **Favorite Coffee Shop:** Mount Currie Coffee Co in Whistler B.C. (Philz Coffee is close second)
 - **Favorite Hike:** Sahale Arm / Cascade Pass in North Cascades National Park
 - **Foreign Languages:** Ukrainian, Russian, a bit of Spanish
